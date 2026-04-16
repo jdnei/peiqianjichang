@@ -1,5 +1,5 @@
 # peiqianjichang 赔钱机场官方地址(2026年4月16日更新)  
-官方最新地址： [赔钱机场.com](https://xn--mes358aby2apfg.com/register?code=b3k7GrOC&cover=sfw)    
+官方最新地址： [赔钱机场.com](https://dash.pqjc.site/register?code=b3k7GrOC)    
 
 ### 简介
 **赔钱机场**（Peiqian Cloud）是一家老牌且极具性价比的科学上网服务商。它最早因其套餐单价极低、流量给得极多而得名。该机场主要面向对流量需求较大（如刷视频、下载、多设备共享）且追求极高性价比的用户。
