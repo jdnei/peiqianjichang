@@ -1,4 +1,4 @@
-# peiqianjichang 赔钱机场官方地址(2026年4月21日更新)  
+# peiqianjichang 赔钱机场官方地址(2026年4月22日更新)  
 官方最新地址： [赔钱机场.com](https://dash.pqjc.site/register?code=b3k7GrOC)    
 
 ### 简介
