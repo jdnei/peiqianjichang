@@ -1,6 +1,6 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
 
-# آدرس رسمی Peiqian VPN (به‌روزرسانی 28 اوت 2026)</br>
+# آدرس رسمی Peiqian VPN (به‌روزرسانی 29 اوت 2026)</br>
 
 آدرس وب‌سایت رسمی Peiqian VPN</br>
 جدیدترین آدرس 01: [dash.赔钱.com](https://to.iix.im/pq02)</br>
