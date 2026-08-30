@@ -1,7 +1,7 @@
 🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# peiqianjichang 赔钱机场官方地址(2026年8月29日更新)</br>
+# peiqianjichang 赔钱机场官方地址(2026年8月30日更新)</br>
 peiqianjichang 赔钱机场官网地址</br>
 最新地址01： [dash.赔钱.com](https://to.iix.im/pq02)</br>
 最新地址02： [dash.pqjc.site](https://to.iix.im/pq01)</br>
