@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 Русский | 🇮🇷 [فارسی](README_FA.md)
 
-# Официальный адрес Peiqian VPN (обновлено 31 августа 2026)</br>
+# Официальный адрес Peiqian VPN (обновлено 1 сентября 2026)</br>
 
 Адрес официального сайта Peiqian VPN</br>
 Новый адрес 01: [dash.赔钱.com](https://to.iix.im/pq02)</br>
