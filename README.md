@@ -3,9 +3,9 @@
 
 # peiqianjichang 赔钱机场官方地址(2026年10月21日更新)</br>
 peiqianjichang 赔钱机场官网地址</br>
-最新地址01： [dash.赔钱.com](https://to.iix.im/pq02)</br>
-最新地址02： [dash.pqjc.site](https://to.iix.im/pq01)</br>
-官方最新地址： [赔钱机场.com](https://to.iix.im/pq01)</br>
+最新地址01：[dash.赔钱.com](https://to.iix.im/pq02)</br>
+最新地址02：[dash.pqjc.site](https://to.iix.im/pq01)</br>
+官方最新地址：[赔钱机场.com](https://to.iix.im/pq01)</br>
 
 
 2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
