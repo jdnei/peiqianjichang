@@ -23,9 +23,9 @@ b3k7GrOC
 ```
 ![image](https://github.com/jdnei/peiqianjichang/blob/main/peiqian/7349725347052.jpg?raw=ture)
 ## 打折码/优惠码
-`7折，截止：10.10`
+`7折，截止：10.15`
 ```bash
-国庆
+1111
 ```
 
 ## 优势
